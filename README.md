@@ -15,3 +15,5 @@ Now, obviously the dance floor is for dancing: whether it’s with a partner, al
 If you’re a bit nervous of making a complete fool out of yourself, then here’s some questionable tips from a questionable website that may or may not help you: [3 Ways to Dance at Parties - wikiHow](https://www.wikihow.com/Dance-at-Parties)
 
 ![Dancing with wikiHow](aid622055-v4-728px-Dance-at-Parties-Step-10.jpg.webp.jpeg)
+
+![aid622055-v4-728px-Dance-at-Parties-Step-10 jpg webp](https://user-images.githubusercontent.com/91553831/135578874-2dfdec9c-68eb-4721-97b9-5fd7294470a4.jpeg)
