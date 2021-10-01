@@ -22,3 +22,7 @@ For some people, the simple act of dancing is enough to make them happy, and the
 
 ### Finding Someone
 
+You know what I'm talking about. Even though it's easier to access them at more formal gatherings or things like prom, matches are always about, and being open to taking someone's hand and going through steps with each other really opens up the possibilities. Memories will be made whether you like it or not, and in my opinion, dancing will make them fonder. Of course, I'm only talking about making friends with someone, nothing more.
+
+![fa79fac3-ac37-4151-9f77-efae62ac2fea](https://user-images.githubusercontent.com/91553831/135583658-d56def50-e07d-4eae-8bb8-b7e6160814e6.jpeg)
+
