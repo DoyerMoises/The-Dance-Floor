@@ -1,8 +1,8 @@
 ## The Dance Floor
 
-Possibly the most intimidating spot to be at in a party, it is also the place that provides the best opportunities for whoever has the courage to step on it and show their stuff.
+Possibly the most intimidating spot to be at in a party, it's also the place that provides the best opportunities for whoever has the courage to step on it and show their stuff.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+No one has the right to make fun of you even if you're the worst dancer in the history of the world, because you decided to make yourself vulnerable for a moment or more; you deserve a fair amount of merit from being there at all.
 
 ### Markdown
 
