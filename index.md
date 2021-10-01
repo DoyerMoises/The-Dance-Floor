@@ -1,6 +1,6 @@
 ## The Dance Floor
 
-You can use the [editor on GitHub](https://github.com/DoyerMoises/The-Dance-Floor/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Possibly the most intimidating spot to be at in a party, it is also the place that provides the best opportunities for whoever has the courage to step on it and show their stuff.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
