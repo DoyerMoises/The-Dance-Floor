@@ -10,9 +10,11 @@ The benefits outweigh any embarrassment.
 
 #### Showing Off
 
-Now, obviously the dance floor is for dancing: whether it's with a partner, alone, or in a group, it doesn't matter. Experience and practice help for this one, but it's not necessary, in fact, it may even be obsolete because you'll probably never be able to top the moves of a particular boy at the age of 7 in his tae-kwon-do dojo. The most important thing if you want everyone to be envious of your flow is to never doubt yourself, especially if you're making things up on the spot. Your viewers might have no idea what steps you're going through, but if you're going through them at an unwavering pace, it'll make them believe that you are an expert at this craft.
+Now, obviously the dance floor is for dancing: whether it's with a partner, alone, or in a group, it doesn't matter. Experience and practice help for this one, but it's not necessary, in fact, it may even be obsolete because you'll probably never be able to top the moves of a particular boy at the age of 6 in his tae-kwon-do dojo. The most important thing if you want everyone to be envious of your flow is to never doubt yourself, especially if you're making things up on the spot. Your viewers might have no idea what steps you're going through, but if you're going through them at an unwavering pace, it'll make them believe that you are an expert at this craft.
 
 If you're a bit nervous of making a complete fool out of yourself, then here's some questionable tips from a questionable website that may or may not help you: [3 Ways to Dance at Parties - wikiHow](https://www.wikihow.com/Dance-at-Parties/)
+
+![The San Juan Mountains are beautiful!](/assets/images/san-juan-mountains.jpg "San Juan Mountains")
 ```markdown
 Syntax highlighted code block
 
