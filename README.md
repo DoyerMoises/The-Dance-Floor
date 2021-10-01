@@ -26,3 +26,8 @@ You know what I'm talking about. Even though it's easier to access them at more 
 
 ![fa79fac3-ac37-4151-9f77-efae62ac2fea](https://user-images.githubusercontent.com/91553831/135583658-d56def50-e07d-4eae-8bb8-b7e6160814e6.jpeg)
 
+## Endless Possibilities
+
+So, you can probably take a guess that dancing is not limited to these three examples. That means so much more can happen if you just take a step and start bopping. However, you'll have to find that out for yourself, because it's an experience that's different for everbody. No one should be able to tell you all that's possible.
+
+
